@@ -16,6 +16,7 @@ J'ai rajouté ça, est ce que ca te va ???
 Essai 2
 
 coucou
+Alors ca fait quoi d'etre sur une série de 7 défaite aux échecs hahahahahahahahahah. 
 
 Petit test
 
